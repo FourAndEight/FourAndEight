@@ -1,2 +1,2 @@
-- 👋 Hi, I’m FourAndEight, or Des, Or Andrew.exe. Call me whatever you want. :)
+To be honest, I have no clue what I'm doing. 
 
